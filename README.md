@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Supperhjhpwj
+- 👋 Hi, I’m @Supperhjhpwj.I study in South China University Of Technology now.
 - 👀 I’m interested in football,table tenis
 - 🌱 I’m currently learning mathematics modeling
 - 💞️ I’m looking to collaborate on : you guess
